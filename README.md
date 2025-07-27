@@ -1,1 +1,0 @@
-# bravepredictor.ai
